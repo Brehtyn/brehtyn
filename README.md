@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hello inquisitive visitor 👋
+
+I'll add indepth profile details at a later date!
 
 <!--
 **Brehtyn/brehtyn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
