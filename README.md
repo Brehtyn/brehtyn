@@ -1,7 +1,7 @@
                           gggb                     
-                         gggggggt                  
-                          ggggggggl                
-                   lltll    bggggggl                         Hello World! 💬
+                         gggggggt                            
+                          ggggggggl                          Hello World! 💬
+                   lltll    bggggggl                        
                   gggggggggl  bgggggl                       
                   gggggggggggb lggggg                        My name is Brentyn Hanna and I am 
                     ltgggggggggbbggggi                       running the software company Bigital!
