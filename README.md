@@ -20,6 +20,6 @@
         tgggg gggg  gggggggllgt ggggggl            
        bgggggllggblggggggbg lggbibgb                    
        ggblttbtgg gggggg  gggggggl                        
-        bbggggggtbgggggllbbbgggllb                          Thanks for stopping by! ❤️ <3 ❤️
-                bgggggiggbtl  lggggl               
+        bbggggggtbgggggllbbbgggllb                          Thanks for stopping by! 
+                bgggggiggbtl  lggggl                        ❤️ 🐇 ❤️
                  gbbbtggggggg  bgggg               
