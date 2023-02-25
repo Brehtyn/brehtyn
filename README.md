@@ -1,5 +1,5 @@
 
-![Hello World](https://github.com/Brehtyn/brehtyn/blob/main/hehe.exe.gif?raw=true)
+![Hello World](https://github.com/Brehtyn/brehtyn/blob/main/hello.gif?raw=true)
 
 My name is Brentyn Hanna! I work as a software engineer for the JT4 contract and also run my sole proprietor company: Bigital!
  
